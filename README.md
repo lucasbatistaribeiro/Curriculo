@@ -40,9 +40,7 @@ Professor Napoleão de Carvalho Freire (Ensino Médio)
 
 3 EXPERIÊNCIA PROFISSIONAL
 
-- Sociedade Beneficente de Senhoras Hospital Sírio-Libânes - 2016/Atualmente
-Cargo ; Jovem Aprendiz
-Setor ; T.I Sitemas
+- Sociedade Beneficente de Senhoras Hospital Sírio-Libânes - 2016/Atualmente 
 
 
 
